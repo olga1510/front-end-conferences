@@ -12,6 +12,10 @@ Suntec Singapore Convention & Exhibition Center, **Singapore** or **Online**
 
 ## Europe
 
+[**AICodingSummit**](https://aicodingsummit.com/)  
+26 February 2026  
+Online, **Online**
+
 [**PragVue**](https://pragvue.com/)  
 23 September 2025  
 Prague, **Czechia**
